@@ -1,1 +1,3 @@
-# aimbot-ninja.github.io
+# aimbot-ninja
+
+there are no cheats, u just bad lol
